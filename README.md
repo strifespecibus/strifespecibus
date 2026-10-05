@@ -1,3 +1,4 @@
-<img width="650" height="450" alt="image" src="https://github.com/user-attachments/assets/4cf384ef-430a-4116-8a58-d42fdd5c7b66" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/00489dd4-5009-4a6b-9478-4629ca9b995d" />
 
-yo, hey. ill rmk this later check out my straw
+
+yo, hey. ill rmk this later check out my straw… say hi to my ocs ig
